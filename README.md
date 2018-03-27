@@ -1,0 +1,1 @@
+Apenas uma página avisando que o site mudou de endereço. 
